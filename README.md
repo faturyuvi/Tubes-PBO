@@ -1,1 +1,8 @@
 Finalnya yang .zip pak (mau replace yang atas gabisa)
+
+Faturrahman Yuvi Putra (2113072)
+
+21103079 Agung Prabowo 
+21103089 Carissa Salwa Salsabiila
+21103102 Rizky Aditya Juliansyah
+
