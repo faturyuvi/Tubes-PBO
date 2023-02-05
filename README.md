@@ -1,6 +1,6 @@
 Finalnya yang .zip pak (mau replace yang atas gabisa)
 
-Faturrahman Yuvi Putra (2113072)
+Faturrahman Yuvi Putra (21103072)
 
 21103079 Agung Prabowo 
 21103089 Carissa Salwa Salsabiila
